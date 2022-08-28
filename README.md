@@ -1,1 +1,1 @@
-# what-make-a-pokemon-legendary-
+# what-makes-a-pokemon-legendary-
